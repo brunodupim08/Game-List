@@ -3,14 +3,12 @@ List of games from various platforms and categories tested and selected by peopl
 
 ## [mobile](https://github.com/gamelist112/Game-List/blob/main/Game-List/Games_mobile.md)
 
-## [pc]()
+## [pc](https://github.com/gamelist112/Game-List/blob/main/Game-List/pc.md)
 
-## [fbneo]()
+## [fbneo](https://github.com/gamelist112/Game-List/blob/main/Game-List/fbneo.md)
 
-## [megadrive]()
+## [megadrive](https://github.com/gamelist112/Game-List/blob/main/Game-List/megadrive.md)
 
-## [nes]()
+## [nes](https://github.com/gamelist112/Game-List/blob/main/Game-List/nes.md)
 
-## [snes]()
-
-aa
+## [snes](https://github.com/gamelist112/Game-List/blob/main/Game-List/snes.md)
