@@ -2,11 +2,11 @@
 List of games from various platforms and categories tested and selected by people with questionable tastes.
 
 
-# snes
+## snes
 jubiruca
 tubiruca
  
-# megadrive
+## megadrive
 
  pato
  gato
