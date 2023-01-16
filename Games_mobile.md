@@ -1,0 +1,44 @@
+- dark echo
+- tomb of the mask
+- There Is No Game 
+- Toda a serie the room 
+- Monument Valley e Monument Valley 2
+- Very Little Nightmares
+- magic toutch
+- my firend pedro
+- the looper 
+- duet
+- What's inside the box? Do Bart Bonte
+e tem a série color do Bart Bonte tbm
+
+- cube space collection
+- goragoa 
+- gris
+- mini golf, nano golf e Nano Golf: Hole in One
+ (nitrome company)
+- colorblind 
+- apple knight 
+- sword of xolan
+- Dead cells 
+- Candies 'n Curses
+- otherworlds legends 
+- soul Knight 
+- Hidden Folks
+- Cat Bird
+- Total Party Kill
+- Heart Star
+- odmmar 
+- rayman fiesta run
+- evoland 1, 2 
+- titan souls 
+- a dance of fire and ice 
+- undertale 
+- forgotton anne 
+- shovel knight 
+- paper please 
+- dandara 
+- sonic 1 e 2
+- dadish 1, 2 e 3
+- vampire survival 
+- freeze 1 e 2
+- Geometry Dash World
