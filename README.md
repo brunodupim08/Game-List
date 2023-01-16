@@ -5,10 +5,12 @@ List of games from various platforms and categories tested and selected by peopl
 ## snes
 
  jubiruca.
+ 
  tubiruca.
  
 ## megadrive
 
  pato.
+ 
  gato.
    
