@@ -1,44 +1,42 @@
-- dark echo
-- tomb of the mask
-- There Is No Game 
-- Toda a serie the room 
-- Monument Valley e Monument Valley 2
-- Very Little Nightmares
-- magic toutch
-- my firend pedro
-- the looper 
-- duet
-- What's inside the box? Do Bart Bonte
-e tem a série color do Bart Bonte tbm
-
-- cube space collection
-- goragoa 
-- gris
-- mini golf, nano golf e Nano Golf: Hole in One
- (nitrome company)
-- colorblind 
-- apple knight 
-- sword of xolan
-- Dead cells 
+- a dance of fire and ice
+- apple knight
+- blue/yellow/pink/red/green/black ( Bart Bonte ) 
 - Candies 'n Curses
-- otherworlds legends 
-- soul Knight 
-- Hidden Folks
 - Cat Bird
-- Total Party Kill
-- Heart Star
-- odmmar 
-- rayman fiesta run
-- evoland 1, 2 
-- titan souls 
-- a dance of fire and ice 
-- undertale 
-- forgotton anne 
-- shovel knight 
-- paper please 
-- dandara 
-- sonic 1 e 2
+- colorblind
+- cube space collection
 - dadish 1, 2 e 3
-- vampire survival 
-- freeze 1 e 2
+- dandara
+- dark echo
+- Dead cells
+- duet
+- evoland 1, 2
+- forgotton anne
+- freeze 1 e 2 
 - Geometry Dash World
+- goragoa
+- gris 
+- Heart Star
+- Hidden Folks
+- magic toutch
+- mini golf, nano golf e Nano Golf: Hole in One (nitrome company)
+- Monument Valley e Monument Valley 2
+- my firend pedro
+- odmmar
+- otherworlds legends
+- paper please
+- rayman fiesta run
+- shovel knight
+- sonic 1 e 2
+- soul Knight
+- sword of xolan
+- the looper
+- There Is No Game
+- titan souls
+- Toda a serie the room
+- tomb of the mask
+- Total Party Kill
+- undertale
+- vampire survival
+- Very Little Nightmares
+- What's inside the box? 
