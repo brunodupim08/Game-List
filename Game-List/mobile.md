@@ -1,42 +1,42 @@
-- a dance of fire and ice
-- apple knight
-- blue/yellow/pink/red/green/black ( Bart Bonte ) 
+- A Dance of Fire and Ice
+- Apple Knight
+- Blue/Yellow/Pink/Red/Green/Black (Bart Bonte)
 - Candies 'n Curses
 - Cat Bird
-- colorblind
-- cube space collection
-- dadish 1, 2 e 3
-- dandara
-- dark echo
-- Dead cells
-- duet
-- evoland 1, 2
-- forgotton anne
-- freeze 1 e 2 
+- Colorblind
+- Cube Space Collection
+- Dadish 1, 2, and 3
+- Dandara
+- Dark Echo
+- Dead Cells
+- Duet
+- Evoland 1 and 2
+- Forgotton Anne
+- Freeze 1 and 2
 - Geometry Dash World
-- goragoa
-- gris 
+- Goragoa
+- Gris
 - Heart Star
 - Hidden Folks
-- magic toutch
-- mini golf, nano golf e Nano Golf: Hole in One (nitrome company)
-- Monument Valley e Monument Valley 2
-- my firend pedro
-- odmmar
-- otherworlds legends
-- paper please
-- rayman fiesta run
-- shovel knight
-- sonic 1 e 2
-- soul Knight
-- sword of xolan
-- the looper
+- Magic Toutch
+- Mini Golf, Nano Golf, and Nano Golf: Hole in One (Nitrome Company)
+- Monument Valley and Monument Valley 2
+- My Firend Pedro
+- Odmmar
+- Otherworlds Legends
+- Paper Please
+- Rayman Fiesta Run
+- Shovel Knight
+- Sonic 1 and 2
+- Soul Knight
+- Sword of Xolan
+- The Looper
 - There Is No Game
-- titan souls
-- Toda a serie the room
-- tomb of the mask
+- Titan Souls
+- The entire Room series
+- Tomb of the Mask
 - Total Party Kill
-- undertale
-- vampire survival
+- Undertale
+- Vampire Survival
 - Very Little Nightmares
-- What's inside the box? 
+- What's Inside the Box?
