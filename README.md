@@ -3,6 +3,8 @@ List of games from various platforms and categories tested and selected by peopl
 
 ## [mobile](https://github.com/gamelist112/Game-List/blob/main/Game-List/mobile.md)
 
+## [psp](https://github.com/gamelist112/Game-List/blob/main/Game-List/psp.md)
+
 ## [pc](https://github.com/gamelist112/Game-List/blob/main/Game-List/pc.md)
 
 ## [fbneo](https://github.com/gamelist112/Game-List/blob/main/Game-List/fbneo.md)
