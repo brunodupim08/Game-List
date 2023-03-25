@@ -1,4 +1,4 @@
-- 3rd Birthday, The
+- The 3rd Birthday
 - Ace Combat - Joint Assault
 - Ace Combat X - Skies of Deception
 - Crash - Mind over Mutant
