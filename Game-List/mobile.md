@@ -1,42 +1,120 @@
+- 20 minutes till down
+- 60 Seconds! Atomic Adventure
+- 7 Billion Humans
+- 99 bricks
 - A Dance of Fire and Ice
+- A Vida é um Jogo
+- Angry birds 2 
 - Apple Knight
+- Assemble With Care
+- Attack the light 
+- Baba is you
+- Bad Piggies
+- Before your eyes 
+- Biphase
 - Blue/Yellow/Pink/Red/Green/Black (Bart Bonte)
+- Brothers: a Tale of two Sons
+- Buckshot Roulette mobile 
 - Candies 'n Curses
 - Cat Bird
 - Colorblind
+- Crypt of the NecroDancer
 - Cube Space Collection
+- Cut the rope 
 - Dadish 1, 2, and 3
 - Dandara
 - Dark Echo
 - Dead Cells
+- Death's door 
+- Deepest Sword
+- Divineko
+- Dome keeper
+- Donut country
+- Doodle Champion Island Games
+- Downwell 
 - Duet
+- Dungeons of Dreadrock
 - Evoland 1 and 2
+- Fireball Wizard 
 - Forgotton Anne
 - Freeze 1 and 2
 - Geometry Dash World
 - Goragoa
 - Gris
+- GTA 3
+- GTA chinatown wars
+- GTA San Andreas
+- GTA vice City
 - Heart Star
 - Hidden Folks
+- Hollow Knight mobile 
+- Hollowknight mobile 
+- Journey (IOS)
+- King Crusher
+- Kingdom Rush Frontiers
+- Kingdom Rush Origins
+- Kingdom Rush Vengeance
+- Kingdom Rush- Tower Defense
+- Kitty death room
+- Laya's horizon 
+- Leo's Fortune 
+- Life is strange
+- Linelight
+- Lines 
+- Little Nightmares
+- Lost in Play 
 - Magic Toutch
-- Mini Golf, Nano Golf, and Nano Golf: Hole in One (Nitrome Company)
+- Mini Golf
 - Monument Valley and Monument Valley 2
+- Moonleap 
+- Moonlighter 
 - My Firend Pedro
+- Nano Golf,
+- Nano Golf: Hole in One
 - Odmmar
 - Otherworlds Legends
+- Oxenfree 2
 - Paper Please
+- Pizza tower mobile 
+- Please, Touch The Artwork 2
+- Poly Bridge
+- Pudding Monsters
+- Quadline
+- Rain world mobile 
+- Raji: An Ancient Epic
 - Rayman Fiesta Run
+- Roto Force
+- Sclerosis - (Amnesia mobile) 
+- Scourgebringer
+- Shadowmatic
 - Shovel Knight
-- Sonic 1 and 2
+- Simulacra
+- Sonic the Hedgehog™ Classic
 - Soul Knight
+- Space Expedition
+- Spiritfarer
+- Storyteller 
+- Super hot mobile 
+- SuperMomboQuest
 - Sword of Xolan
+- Swordigo 
+- Terra nil 
+- Teslagrad 
+- That level Again 
+- That's not my Neighbor mobile 
 - The Looper
+- The Room 
+- The Secret Elevator Remastered
+- The Walking Dead: Season One; Two; Three 
+- The way home 
 - There Is No Game
+- Tiny Room Stories Town Mystery
 - Titan Souls
-- The entire Room series
 - Tomb of the Mask
 - Total Party Kill
+- Turnip Boy Commits Tax Evasion
+- Ugly 
 - Undertale
-- Vampire Survival
 - Very Little Nightmares
+- What the golf ? (IOS)
 - What's Inside the Box?
