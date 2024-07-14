@@ -117,7 +117,8 @@
 - Rock Band - Country Track Pack 
 - Rock Band - Metal Track Pack 
 - Rock Band - Track Pack Volume 1 
-- Rock Band - Track Pack Volume 2 
+- Rock Band - Track Pack Volume 2
+- Rock Band
 - Rock Band 2 
 - Rock Band Track Pack - Classic Rock 
 
